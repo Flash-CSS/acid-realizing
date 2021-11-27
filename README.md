@@ -9,4 +9,30 @@
 
 
   ##### <font color="red">Our research is not yet complete. We will explain about it as soon as it is completed in this article!!!</font>
+  
+  
+  
+  ##### <font color="red">From the galaxy came the wingless earth flying
+
+Like a meteor came from the sky with a secret
+
+His story became a boy and our story began
+
+بن ۱۰
+
+It rotates and changes with a gesture
+
+It is powerful and unparalleled on earth
+
+Humorous assumption and strong and fearless agility
+
+بن ۱۰
+
+He does not fight with the enemy
+
+It can be said that all this is a kind of secret
+
+Going up remembers down how simple
+
+بن ۱۰</font>
 
