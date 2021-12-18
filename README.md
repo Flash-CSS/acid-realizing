@@ -36,5 +36,19 @@ Going up remembers down how simple
 
 بن ۱۰
 
-we dont have ilan mask we have iran mast for ever byby girl come netflix and chill</font>
+we dont have ilan mask we have iran mast for ever byby girl come netflix and chill.
+
+  you dont have time to see my qoran {r} 
+
+somaye is best you a gay 
+
+you have chaleng to eat makaroni [madar] we have mlg in haous go play whit hamsaye and your baba rivil kan babat micharkhe.
+
+  you cozmetik in the world off kazem go find your shekar maman today is espanser mobile legend and shadow legend of tom rider we dont have time .
+  
+  saaadiya nekonam mard       never diee from lithening
+  we go plasma whit kda       whit your baba namak jan
+
+  
+</font>
 
